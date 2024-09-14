@@ -1,1 +1,1 @@
-👋 Hi! You talking to me?
+The transformers missed the exit to Earth. They didn't pay attention.
